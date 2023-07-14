@@ -20,5 +20,3 @@ Here are some characteristics of a supportive workplace mentality:
 * Continuous improvement: Employees seek to continuously improve their skills and knowledge, fostering a culture of innovation and growth.
 
 By fostering a supportive workplace mentality, companies can create a more positive and welcoming workplace environment that values and respects all employees.
-
-In the next chapter, we will discuss the importance of building positive relationships in the workplace, including strategies for building positive relationships with colleagues.

@@ -28,5 +28,3 @@ Here are some strategies that employees can use to build positive relationships 
 * Participate in team-building activities: Employees should participate in team-building activities, such as group projects, social events, and volunteer opportunities, to build relationships with colleagues.
 
 By implementing these strategies, employees can build positive relationships with colleagues, leading to a more positive and welcoming workplace environment that values and respects all employees.
-
-In the next chapter, we will discuss the importance of encouraging collaboration and teamwork in the workplace, including benefits of collaboration and techniques for promoting collaboration among colleagues.

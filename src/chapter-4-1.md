@@ -28,5 +28,3 @@ Here are some strategies that companies can use to encourage collaboration and t
 * Provide training and education: Companies should provide training and education on collaboration and teamwork to help employees develop skills and knowledge needed for effective teamwork.
 
 By implementing these strategies, companies can encourage collaboration and teamwork in the workplace, leading to a more positive and welcoming workplace environment that values and respects all employees.
-
-In the next chapter, we will discuss techniques for effective communication in the workplace, including active listening, clear and concise messaging, and nonverbal communication.

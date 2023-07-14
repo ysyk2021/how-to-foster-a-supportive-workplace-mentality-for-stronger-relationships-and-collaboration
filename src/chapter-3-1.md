@@ -27,5 +27,3 @@ Here are some strategies that companies can use to build positive relationships 
 * Establish clear expectations: Companies should establish clear expectations for behavior and communication in the workplace to promote consistency and mutual respect.
 
 By implementing these strategies, companies can build positive relationships in the workplace, leading to a more positive and welcoming workplace environment that promotes stronger relationships and collaboration.
-
-In the next chapter, we will discuss techniques for effective communication in the workplace, including active listening, clear and concise messaging, and nonverbal communication.
