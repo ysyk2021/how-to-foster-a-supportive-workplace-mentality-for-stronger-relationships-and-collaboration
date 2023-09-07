@@ -1,5 +1,3 @@
-The Importance of a Supportive Workplace Mentality
-===========================================================================
 
 A supportive workplace mentality is essential for creating a positive and welcoming work environment that promotes stronger relationships and collaboration among employees. Companies that prioritize support, empathy, and respect in their workplace culture have increased employee satisfaction, productivity, and performance, leading to greater success and profitability.
 

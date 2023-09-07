@@ -1,5 +1,3 @@
-Chapter 9: Overcoming Obstacles to a Supportive Workplace Mentality
-===================================================================
 
 Overcoming obstacles to a supportive workplace mentality is crucial for creating a workplace that values and supports all employees. In this chapter, we will explore common obstacles to a supportive workplace mentality and strategies for overcoming them.
 

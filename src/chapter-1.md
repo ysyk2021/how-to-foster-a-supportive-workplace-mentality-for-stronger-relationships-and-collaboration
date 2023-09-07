@@ -1,5 +1,3 @@
-Chapter 1: Introduction
-=======================
 
 In today's fast-paced and competitive work environment, fostering a supportive workplace mentality is essential for creating stronger relationships and collaboration among colleagues. A supportive workplace mentality promotes a positive and welcoming work environment, where employees feel valued and respected.
 

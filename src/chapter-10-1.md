@@ -1,6 +1,3 @@
-# Incorporating a Supportive Workplace Mentality into Company Culture
-
-## Introduction
 
 In today's highly competitive business landscape, fostering a supportive workplace mentality is crucial for building stronger relationships and promoting collaboration among employees. A supportive environment not only enhances employee well-being but also drives productivity and fosters innovation. This chapter will guide you through the process of incorporating a supportive workplace mentality into your company culture.
 

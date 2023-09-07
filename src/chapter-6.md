@@ -1,5 +1,3 @@
-Chapter 6: Fostering Diversity, Equity, and Inclusion
-=====================================================
 
 Fostering diversity, equity, and inclusion is crucial for creating a supportive workplace mentality that values and supports all employees. In this chapter, we will explore the benefits of diversity, equity, and inclusion in the workplace, as well as strategies for fostering a diverse and inclusive workplace.
 

@@ -1,5 +1,3 @@
-Chapter 2: Understanding Workplace Mentality
-============================================
 
 Understanding workplace mentality is essential for creating a supportive workplace environment that promotes stronger relationships and collaboration. By understanding workplace mentality, employees can create a more positive and welcoming workplace environment that values and respects all employees.
 

@@ -1,5 +1,3 @@
-Chapter 3: Building Positive Relationships in the Workplace
-===========================================================
 
 Building positive relationships in the workplace is essential for creating a supportive workplace environment that promotes stronger relationships and collaboration. By building positive relationships with colleagues, employees can work together more effectively, creating a more positive and welcoming workplace environment.
 

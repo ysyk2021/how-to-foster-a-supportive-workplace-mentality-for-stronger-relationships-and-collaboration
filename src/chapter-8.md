@@ -1,5 +1,3 @@
-Chapter 8: Practicing Effective Communication
-=============================================
 
 Effective communication is crucial for fostering a supportive workplace mentality that values and supports all employees. In this chapter, we will explore the role of effective communication in a supportive workplace mentality, as well as techniques for practicing effective communication.
 

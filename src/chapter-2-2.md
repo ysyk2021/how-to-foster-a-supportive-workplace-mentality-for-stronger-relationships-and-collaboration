@@ -1,4 +1,3 @@
-# Characteristics of a Supportive Workplace Mentality
 
 In order to foster stronger relationships and collaboration within a workplace, it is essential to cultivate a supportive workplace mentality. A supportive workplace mentality creates an environment where individuals feel valued, respected, and encouraged to grow both personally and professionally. In this chapter, we will explore the key characteristics that define a supportive workplace mentality.
 

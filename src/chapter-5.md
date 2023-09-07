@@ -1,5 +1,3 @@
-Chapter 5: Empowering Employees Through Support and Recognition
-===============================================================
 
 Empowering employees through support and recognition is essential for creating a supportive workplace mentality that promotes stronger relationships and collaboration. By providing employees with the necessary support and recognizing their contributions, companies can create a positive and welcoming work environment that values and respects all employees.
 

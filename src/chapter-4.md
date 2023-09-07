@@ -1,5 +1,3 @@
-Chapter 4: Encouraging Collaboration and Teamwork
-=================================================
 
 Encouraging collaboration and teamwork is crucial for creating a supportive workplace mentality that fosters stronger relationships and collaboration. In this chapter, we will explore the benefits of collaboration and teamwork, as well as techniques for encouraging collaboration in the workplace.
 

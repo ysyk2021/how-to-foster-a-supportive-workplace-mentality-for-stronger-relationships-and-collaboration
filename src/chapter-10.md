@@ -1,5 +1,3 @@
-Chapter 10: Implementing Lasting Change
-=======================================
 
 Implementing lasting change in a workplace requires dedication and persistence. In this chapter, we will explore the importance of incorporating a supportive workplace mentality into company culture and tracking progress and celebrating successes.
 
@@ -33,5 +31,4 @@ Conclusion
 ----------
 
 Implementing lasting change in a workplace requires dedication and persistence. By incorporating a supportive workplace mentality into company culture through policies and procedures, training and education, open communication and participation, consistent enforcement, and hiring practices, organizations can create a work environment that values and supports all employees. Remember to prioritize self-reflection and seek support when needed. By tracking progress and celebrating successes through goal-setting, metrics and benchmarks, feedback and data collection, recognition and celebration, and continuous evaluation and adjustment, organizations can implement lasting change and create a work environment that values and supports all employees.
-
 
