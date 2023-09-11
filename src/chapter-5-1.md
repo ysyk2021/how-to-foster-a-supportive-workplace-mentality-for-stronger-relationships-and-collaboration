@@ -1,5 +1,4 @@
-Chapter 6: Importance of Support and Recognition in the Workplace
-=================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a thriving workplace, support and recognition are essential elements that contribute to building stronger relationships and fostering collaboration among employees. This chapter highlights the significance of providing support and recognition within the workplace environment, and how it positively impacts individual and team performance.
 

@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Practicing Effective Communication
-============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication is essential for fostering a supportive workplace mentality and promoting stronger relationships and collaboration among employees. This chapter explores techniques for practicing effective communication, including active listening, clarity, empathy, and feedback.
 

@@ -1,5 +1,4 @@
-Chapter 9: The Role of Effective Communication in a Supportive Workplace Mentality
-==================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Effective communication plays a fundamental role in fostering a supportive workplace mentality and promoting stronger relationships and collaboration among employees. This chapter explores how effective communication contributes to a supportive workplace culture, the benefits it brings, and strategies for implementing it.
 

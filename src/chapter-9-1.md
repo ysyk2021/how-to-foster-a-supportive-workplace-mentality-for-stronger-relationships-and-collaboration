@@ -1,5 +1,4 @@
-Chapter 8: Common Obstacles to a Supportive Workplace Mentality
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to foster a supportive workplace mentality for stronger relationships and collaboration, it is important to identify and address common obstacles that can hinder the development of such a culture. This chapter discusses some of the common obstacles that organizations may face when trying to create a supportive workplace mentality and provides strategies to overcome them.
 

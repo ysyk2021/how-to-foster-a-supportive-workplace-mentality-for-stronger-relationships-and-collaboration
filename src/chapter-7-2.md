@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Providing Growth and Development Opportunities for Employees
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In an organization, providing growth and development opportunities for employees is crucial for their professional advancement, job satisfaction, and overall success. This chapter explores various techniques that can be employed to effectively support and empower employees in their growth and development journey.
 

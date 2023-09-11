@@ -1,5 +1,4 @@
-Chapter 4: Strategies for Empowering Employees through Support and Recognition
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In an organization, empowering employees through support and recognition is essential for fostering a supportive workplace mentality, strengthening relationships, and promoting collaboration. This chapter explores effective strategies that can be employed to empower employees by providing them with the necessary support and recognition they need to thrive.
 

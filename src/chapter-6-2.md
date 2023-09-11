@@ -1,5 +1,4 @@
-Chapter 8: Strategies for Fostering a Diverse and Inclusive Workplace
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In today's global and interconnected world, fostering diversity and inclusion in the workplace is not only a moral imperative but also a strategic advantage. A diverse and inclusive workplace promotes innovation, enhances decision-making, and creates a sense of belonging among employees. In this chapter, we will explore effective strategies for fostering a diverse and inclusive workplace.
 

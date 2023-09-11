@@ -1,5 +1,4 @@
-Chapter 5: Benefits of Diversity, Equity, and Inclusion in the Workplace
-========================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Diversity, equity, and inclusion (DEI) are not just buzzwords; they are essential elements of a thriving and successful workplace. In this chapter, we will explore the numerous benefits that organizations can derive from fostering diversity, equity, and inclusion.
 

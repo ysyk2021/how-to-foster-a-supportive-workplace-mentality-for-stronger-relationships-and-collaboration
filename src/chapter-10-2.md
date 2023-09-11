@@ -1,5 +1,4 @@
-Chapter 7: Tracking Progress and Celebrating Successes
-======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In a supportive workplace that values stronger relationships and collaboration, tracking progress and celebrating successes is a crucial aspect of fostering a positive and motivated work culture. This chapter explores the importance of tracking progress, setting goals, and celebrating achievements, and provides effective strategies for implementing these practices.
 
